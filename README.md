@@ -1,2 +1,0 @@
-# SEOmaterials
-my SEO treasures
